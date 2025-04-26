@@ -1,7 +1,7 @@
 #  WORKING HARD 🏯
 
 
-![radiohead bear](images/image.png)
+<img src="images/image.png" alt="drawing" width="200"/> 
 
 ---
 > _head in the ceiling fan goes rolling_  
@@ -14,3 +14,5 @@
 ---
 
 ### ✂ |SHOEGAZE|MIDWEST| ✂
+
+![radiohead bear2](images/image2.png)
