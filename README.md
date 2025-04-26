@@ -1,13 +1,6 @@
-- 👋 Hi, I’m @DenisOzindzheDev
-- 👀 I’m interested in GO
-- 🌱 I’m currently learning ANYTHING
-- 💞️ I’m looking to collaborate on GOOGLE
-- 📫 How to reach me : u can't
-- 😄 Pronouns: Denis
-- ⚡ Fun fact: I'm afraid of dogs 
-
-<!---
-DenisOzindzheDev/DenisOzindzheDev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-
+Head in the ceiling fan goes rolling
+And missing like bullets slamming into deer skin
+Glued my green eyes to your face, I'm blind
+Follow footsteps a bleeding bloodline
+Head in the ceiling fan goes rolling
+And missing like bullets slamming into deer skin
