@@ -1,13 +1,12 @@
-# 🌫️ Into the Fog 🌫️
+# 🖤 head in the ceiling fan 🖤
 
-> **Head in the ceiling fan goes rolling**  
-> *and missing like bullets slamming into deer skin*  
-> **Glued my green eyes to your face, I'm blind**  
-> *follow footsteps — a bleeding bloodline*  
-> **Head in the ceiling fan goes rolling**  
-> *and missing like bullets slamming into deer skin*
+> _head in the ceiling fan goes rolling_  
+> _and missing like bullets slamming into deer skin_  
+> _glued my green eyes to your face, i'm blind_  
+> _follow footsteps, a bleeding bloodline_  
+> _head in the ceiling fan goes rolling_  
+> _and missing like bullets slamming into deer skin_
 
 ---
 
-🎵 _Music is where the soul gets lost and found._
-
+### ✂ |SHOEGAZE|MIDWEST| ✂
