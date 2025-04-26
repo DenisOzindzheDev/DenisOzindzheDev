@@ -1,26 +1,7 @@
-#  WORKING HARD 
+#  WORKING HARD 🏯
 
----
 
-              /\
-             /  \
-            /    \     /\
-           /      \   /  \      /\
-          /        \_/    \    /  \
-         /                  \_/    \
-        /                           \
-       /     /\             /\       \
-      /     /  \    /\     /  \       \
-     /     /    \  /  \   /    \       \
-    /_____/______\/____\_/______\_______\
-   /                                    /
-  /    /\                      /\      /
- /    /  \    /\        /\     /  \    /
-/    /    \  /  \      /  \   /    \  /
-\___/      \/    \____/    \/      \/
-
-               K I D   A
-
+![radiohead bear](images/image.png)
 
 ---
 > _head in the ceiling fan goes rolling_  
